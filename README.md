@@ -1,0 +1,2 @@
+# Isoon-Srichundi
+I am a partner with a Consulting Company. I have reputable investors that are expanding their global presence by investing in viable projects across the globe. They are willing to inject from $1, 000, 000, 00 and above in viable project(s) at 4-5% ROI per annum for 7-10 years and 12 months moratorium. If you have viable projects that need funding, kindly revert with your Business Plan/Executive Summary for our review and possible funding.
